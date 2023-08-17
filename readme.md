@@ -1,1 +1,1 @@
-teste
+Meu nome é Pedro luka leandro martins, estudante do Instituto Federal do Tocantins - campus araguaina. tecnico em imformatica, gosto de joga bola tanto em quadra tanto em campo mas prefiro campo, pretendo termina o ensino medio no IFTO, e quem sabe levar o que eu aprendi do curso tecnico informatica ao emprego de trabalho. Seguidor de Cristo. 
